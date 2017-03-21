@@ -18,6 +18,6 @@ If you like these Starter Cards and / or have suggestions, please feel free to c
 Enjoy the journey with your community of makers!
 
 Sincerely,
-Jeanette
+Jeanette (aka ChaosBuster)
 Techno Chaos
 https://techno-chaos.com
